@@ -3,6 +3,8 @@ Naan Mudhalvan Mandatory Courses
 
 Industrial IoT and Industry 4.0
 
+Read my PDF for whole Report
+
 	Submitted by
  
 NANDHA GOPALAKRISHNAN D	513121106060
